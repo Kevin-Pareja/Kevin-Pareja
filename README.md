@@ -6,5 +6,10 @@ My name is Kevin. I am a student of Economics at the Pontificia Universidad Cato
 - Ask me about: Microeconomics, Ecological economy and Mathematics
 - In my free time I like to reed differents kind of books about History, Economics, Philosophy 
 
+### Areas of interest:
+- Ecological economy
+- Poverty and economic inequality
+- Education and economic growth 
+
 ### Get in touch
 - Linkedin: https://www.linkedin.com/in/kevin-pareja-palomino-ba2325260
